@@ -1,0 +1,1 @@
+# AI-produkuj-ce-Miernik-Gaigera-i-mulera
